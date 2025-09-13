@@ -39,8 +39,7 @@
 
 ## 📫 Contact Me
 ✉️ [Email](mailto:snehasolanki1712@gmail.com)  
-🔗 [LinkedIn](https://www.linkedin.com/in/sneha-solanki)  
-🐦 [Twitter](https://twitter.com/) *(Optional)*  
+🔗 [LinkedIn](https://www.linkedin.com/in/sneha-solanki-802142314/)   
 
 ---
 
